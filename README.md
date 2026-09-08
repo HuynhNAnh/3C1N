@@ -1,2 +1,2 @@
-# 3N1C
+# 3C1N
 Nhom Lap trinh tren dien thoai di dong 
